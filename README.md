@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @codedhologram
-- 👀 I’m interested in math and crocheting
+- 👀 I’m interested in math, apothecary diaries and crocheting
 - 🌱 I’m currently learning TOO MUCH 
 - 💞️ I’m not looking to collaborate at the moment 
 - 📫 How to reach me - nah 
